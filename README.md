@@ -2,7 +2,7 @@
 
 Universidad de las Fuerzas Armadas "ESPE"
 
-CARRIÓN DIJO
+CARRIÓN SAID 
 
 MACÍAS HENRY
 
